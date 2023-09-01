@@ -1,1 +1,1 @@
-# -SISTER_TEORI_HabibMaulanaShidiq
+# SISTER_TEORI_HabibMaulanaShidiq
